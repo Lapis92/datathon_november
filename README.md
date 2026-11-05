@@ -1,6 +1,3 @@
 # datathon\_november
 
-
-
 asdasdfafs
-
